@@ -1,6 +1,6 @@
 <p align="center">
-  rmking stuff
+  Remaking everything, please be paitent.
 </p>
 <p align="center">
-  <img src="https://i.pinimg.com/564x/37/ae/c8/37aec8a97cf2d5b3f98454bcbd434a1f.jpg">
+  <img src="https://i.pinimg.com/564x/3c/71/1d/3c711da8f48dd966aa2665026b1190cc.jpg">
 </p>
